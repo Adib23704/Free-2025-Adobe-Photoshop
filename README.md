@@ -1,0 +1,1 @@
+# Free-2025-Adobe-Photoshop
